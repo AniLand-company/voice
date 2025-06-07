@@ -22,6 +22,6 @@
 [Telegram](https://t.me/aniland_ds) | [Email](mailto:aniland.help@gmail.com) | [Discord](https://discord.gg/Kmpk7sBCVQ)
 
 # 🖼️ Скришоты
-
+На 6 satar выложу код полностью
 ---
 ![image](https://github.com/user-attachments/assets/e981d8df-11ef-4c1d-8743-ed431b401323)
